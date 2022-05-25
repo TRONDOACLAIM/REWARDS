@@ -1,1 +1,1 @@
-# REWARDS
+# Rewards
